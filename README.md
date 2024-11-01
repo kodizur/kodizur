@@ -1,7 +1,7 @@
-- 👋 Hi, I’m Jamilly
+- 👋 Hi, I’m Kodizur, Oliver or just Oli
 - 👀 I’m interested in animes, books of action, fantasy and investigation and science
 - 🌱 I’m currently learning informatic
-- 😄 Pronouns: she/her
+- 😄 Pronouns: he/him or they/them (i dont use she/her)
 - ⚡ Fun fact: i'm learning informatic on school, but i want do History or Psicology on the college
 
 <!---
